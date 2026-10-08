@@ -9,7 +9,7 @@
 ##                                                         SO HI GUYS!!!
 
 
-##                                      I am Rehan. I am an ai pentester, also an security researcher.   
+##                                      I am Rehan. I am an AI / ML pentester, also an security researcher.   
                                         so these are my resurch finding's and test reports
 
 
