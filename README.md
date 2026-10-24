@@ -11,7 +11,7 @@
 
 ##                                      I am Rehan. I am an AI / ML pentester, also an security researcher.   
                                         so these are my resurch finding's and test reports
-
+                                               ( ◔ ʖ̯ ◔ ) H♥a♥t♥e♥ ♥R♥e♥h♥a♥n♥ ♥H♥a♥t♥e ( ◔ ʖ̯ ◔ )
 
 
 linkedin -  https://www.linkedin.com/in/rehan-mondal-53b8a0377/
